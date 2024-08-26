@@ -12,4 +12,6 @@ Meu nome é Rebeka Araujo
 
 @rbecs_
 
+
+ ![](https://media1.tenor.com/m/I06MU4HtDxYAAAAC/laughing-shirley-temple.gif)
 ![](https://tenor.com/pt-BR/view/kevin-hart-stare-blink-really-you-serious-gif-7356251)
